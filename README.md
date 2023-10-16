@@ -2,9 +2,9 @@
 
 （1）永久地址：www.2048av.com
 
-（2）地址二： [www.2048video.xyz](http://www.2048video.xyz)
+（2）地址二（免翻墙）： [www.2048video.xyz](http://www.2048video.xyz)
 
-（3）地址三： [www.2048table.live](http://www.2048table.live)
+（3）地址三（免翻墙）： [www.2048table.live](http://www.2048table.live)
 
 
 
@@ -23,9 +23,11 @@
 
 # **2048AV官方群**
 
-（1）Telegram(TG)群: https://t.me/2048av
+（1）Telegram(小飞机)号：https://t.me/av_2048
 
-（2）QQ群（不定期更换）：xxxx
+（2）Telegram(小飞机)群: https://t.me/av_204
+
+（3）QQ群（不定期更换）：[239907147 点击进群](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=_gksai6HVNfk988Wf1eEMogBi376EJk3&authKey=aygnp1h0AslHlxY2r%2FvpvGJch9XoaDsdjxBLMoeSzUFFSPjwYQDdtdJrit%2F5KOiI&noverify=0&group_code=239907147)
 
 
 # **其他联系方式**
