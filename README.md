@@ -14,9 +14,7 @@
 
 （2）hackmd: https://hackmd.io/@dgC8nNsMRtaGPj8JdXrXJA/2048av
 
-（3）**官方**发布站： http://www.2048vip.xyz
-
-（4）**官方**Twitter号： [@2048_av](https://twitter.com/2048_av)
+（3）**官方**Twitter号： [@2048_av](https://twitter.com/2048_av)
 
 
 
